@@ -19,5 +19,15 @@
 18. HitlersgasBill
 19. Gasbllgates
 20. Avoiledupboy
-21. GayGabe
-22. Caseohslittlehamburger
+21. GayBrial
+22. GayGabe
+23. Geegaygoshgolly
+24. Caseohslittlehamburger
+25. RacistRodger
+26. Rainbowtaster420
+27. GoblingGabe
+28. GayGobler
+29. Billgatedcommunity
+30. ChingChongChonk
+31. Istealkids
+32. Kidnapper💤
