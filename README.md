@@ -3,4 +3,17 @@
 2. JEW?
 3. HitlersFavourateJew
 4. BibleCampVictim
-5. 
+5. ngr
+6. Kiran
+7. NwordMan
+8. IWantikeC*ck
+9. KillallHomo
+10. Stankpossay
+11. slackjawed
+12. SharpedoBait
+13. Diengr
+14. KittyKiller
+15. Diddyvictim
+16. NowilsForPedo
+17. SexGodoliver
+18. EatMyWryssy 
